@@ -1,1 +1,1 @@
-Manchester city is tghe best club in the world
+Manchester city is the best club in the world.
